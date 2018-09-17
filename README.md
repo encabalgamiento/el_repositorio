@@ -13,4 +13,5 @@
 - теория игр 
 - живородящие змеи
 
-![](https://journals.openedition.org/etudesromanes/2711)
+_Это какая-то женщина с мясом_
+![](https://static.picassomio.com/images/art/pm-50382-large.jpg)
